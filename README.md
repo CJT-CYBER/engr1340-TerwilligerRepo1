@@ -1,1 +1,1 @@
-Calhan J. Terwilliger
+Calhan Terwilliger
